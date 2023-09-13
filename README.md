@@ -1,4 +1,5 @@
- 
+![Red Ghost](1DeadHeir.PNG)
+
 # DEAD HEIR
 --------------------------
 
